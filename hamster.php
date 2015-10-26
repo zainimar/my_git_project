@@ -1,0 +1,1 @@
+Hamster i kaler hijau dan oren

@@ -1,0 +1,1 @@
+saya ada 10 jenis burung di rumah
